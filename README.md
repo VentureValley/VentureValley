@@ -7,3 +7,5 @@ Momenteel bestaat dit account alleen zodat we mee kunnen kijken in de Repository
 - Website: https://venturevalleymc.nl
 - Discord: https://discord.venturevalleymc.nl
 - YouTube: https://youtube.com/@VentureValley
+- Instagram: https://www.instagram.com/venturevalleymc/
+- TikTok: https://www.tiktok.com/@venturevalley
